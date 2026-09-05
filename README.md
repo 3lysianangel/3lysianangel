@@ -12,7 +12,7 @@
 </p>
 
 <p align="center">
-  ── .✦‎ ‎ ‎ 𝐖𝐢𝐟𝐢𝐞𝐬 𝐨𝐫 𝐂𝐨𝐧𝐞𝐱𝐢𝐨𝐧‎ ‎ ‎ † ‎ ‎ 𝐇𝐞 / 𝐓𝐡𝐞𝐲‎ ‎ ‎ † ‎ ‎ (𝐆𝐌𝐓+𝟐)‎ ‎ ‎ ✦‎. ──
+  ── .♡ ‎ ‎ Miss Pink Elf ‎ ‎ † ‎ ‎Angel / It ‎ ‎ † ‎ ‎ (𝐆𝐌𝐓+𝟐)‎ ‎ ‎ ♡. ──
 
 <p align="center">
   <img width="300" height="40" alt="image" src="https://files.catbox.moe/17diy8.png">
