@@ -19,7 +19,7 @@
 </p>
 
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=DirectorWifies&style=flat&abbreviated=true&base=6767&color=56435B&label=☯︎">
+  <img src="https://komarev.com/ghpvc/?username=DirectorWifies&style=flat&abbreviated=true&base=6767&color=56435B&label=🪽">
 </p>
 <p align="center">
   <img width="800" height="90" alt="image" src="https://files.catbox.moe/o1u859.jpg" />
